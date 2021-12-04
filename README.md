@@ -1,0 +1,1 @@
+I Am Young Political Activist From Jammu And Kashmir UT India , I Am Contesting DDC ELECTIONS In Year 2020 /Elections Are Held By Election Commision Of India / I Am Currently Affiliated With a Political Organization Namely - Jammu And Kashmir Apni Party As District Office Secretary Youth Wing Srinagar .Inspired By Mayor Of Srinagar Shiri Junaid Azim Mattu 
